@@ -1,10 +1,4 @@
-## Hi there 👋
-
-
-
-I drew ts
-
-
+## I drew ts
 
 
 
