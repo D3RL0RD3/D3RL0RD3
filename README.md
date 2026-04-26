@@ -1,5 +1,17 @@
 ## Hi there 👋
 
+
+
+I drew ts
+
+
+
+
+
+https://github.com/user-attachments/assets/f5cd67d3-19a7-44d1-b908-4a0931826459
+
+
+
 <!--
 **D3RL0RD3/D3RL0RD3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
