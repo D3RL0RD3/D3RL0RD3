@@ -1,6 +1,7 @@
 
-## I drew ts (я нарисовал это)<img width="2360" height="1640" alt="IMG_4506" src="https://github.com/user-attachments/assets/4b89e81d-ab3e-4ca9-8d69-53fbb5a14c2d" />
+## I drew ts (я нарисовал это)
 
+<img width="2360" height="1640" alt="IMG_4507" src="https://github.com/user-attachments/assets/87e02d5e-d93e-4d0d-a59a-a8db118ac6fe" />
 
 
 
