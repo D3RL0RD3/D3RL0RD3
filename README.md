@@ -3,7 +3,7 @@
 
 <img width="2360" height="1640" alt="IMG_4507" src="https://github.com/user-attachments/assets/87e02d5e-d93e-4d0d-a59a-a8db118ac6fe" />
 
-
+artist: me bro
 
 https://github.com/user-attachments/assets/f5cd67d3-19a7-44d1-b908-4a0931826459
 
